@@ -30,7 +30,7 @@ This landing page was developed as a simple online business card for the client‚
 
 **Nikita Ursulenco**  
 Open to freelance projects and collaborations.  
-Feel free to connect on [LinkedIn]([https://www.linkedin.com](https://www.linkedin.com/in/nikita-ursulenco?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)) or reach out for new opportunities.
+[Connect with me on LinkedIn](https://www.linkedin.com/in/nikita-ursulenco?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ## ü§ù Contributions
 
